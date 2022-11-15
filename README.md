@@ -1,1 +1,1 @@
-# programming-control
+# Мироненко Данил 09.07.32
